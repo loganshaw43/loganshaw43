@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on everythinbg
-- 📫 How to reach me at 226 583 6366
+- 📫 How to reach me at 226 583 6366 or at lshaw1007@bhncdsb.ca
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i play highschool football
 <!---
